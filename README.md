@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @DefaultLoam
+- 👋 Hi, I’m @Liam Pickering
 - 👀 I’m interested in games, art, music and anything PC related, whether it's software or hardware.
-- 🌱 I’m currently learning Cybersecurity
+- 🌱 I’m currently studying Cybersecurity at UWA
 - 💞️ I’m looking to collaborate on nothing at the moment
 - 📫 How to reach me - Email: ljay20400@gmail.com
 
